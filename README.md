@@ -1,2 +1,1 @@
-- text in red "Its the same here as it is out there"
-  
+  $/color{#7d162d}{/textbf{"It really is the same here as it is out there"}}$
