@@ -22,6 +22,10 @@
 
 $\color{#654262}{\textbf{Im a bit weird and dont really understand some jokes, so please dont judge me because of that}}$ 
 
+$\color{#7d162d}{\textbf{Sometimes im w my friends, but feel free to interact w me!}}$
+
+$\color{#654262}{\textbf{W2I because i'm mostly offtab}}$ 
+
 ![La_rosa_di_Auschwitz-removebg-preview](https://github.com/user-attachments/assets/333badf0-5a91-4978-bee0-bdb0c22b7e73)
 
 ![Screenshot 2024-12-31 7 53 51 PM](https://github.com/user-attachments/assets/99a6ae11-b85d-4b6b-936f-f6044f4cbed9)
