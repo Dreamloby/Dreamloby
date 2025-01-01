@@ -18,4 +18,9 @@
 
  $\color{#654262}{\textbf{Im shy at first but i am more friendly and nice afterwards }}$ 
 
- 
+ $\color{#7d162d}{\textbf{I like drawing, reading and playing games}}$
+
+ $\color{#654262}{\textbf{W2I because i am mostly offtab}}$ 
+
+ ![images-removebg-preview](https://github.com/user-attachments/assets/101afc95-2731-476e-883f-4066f49b2ac8)  ![images-removebg-preview](https://github.com/user-attachments/assets/101afc95-2731-476e-883f-4066f49b2ac8)
+
