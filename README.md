@@ -14,7 +14,7 @@
 
  $\color{#654262}{\textbf{Main interests are FPE, Danganronpa/Fanganronpas, IDV and Persona}}$ 
 
- $\color{#7d162d}{\textbf{I love Eva from Project Edens Garden}}$
+ $\color{#7d162d}{\textbf{I love Eva from Project Edens Garden and Junko from Danganronpa}}$
 
  $\color{#654262}{\textbf{Im shy at first but i am more friendly and nice afterwards }}$ 
 
