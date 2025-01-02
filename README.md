@@ -26,6 +26,8 @@ $\color{#7d162d}{\textbf{Sometimes im w my friends, but feel free to interact w 
 
 $\color{#654262}{\textbf{W2I because i'm mostly offtab}}$ 
 
+$\color{#7d162d}{\textbf{Read rentry for more info}}$
+
 ![La_rosa_di_Auschwitz-removebg-preview](https://github.com/user-attachments/assets/333badf0-5a91-4978-bee0-bdb0c22b7e73)
 
 ![ezgif-5-4a57a5a2b7](https://github.com/user-attachments/assets/f95d2c05-1396-40b4-bd82-a50ba475ec36)
