@@ -3,7 +3,7 @@
 
 ![d275f877](https://github.com/user-attachments/assets/3f30175c-f4a1-4fc2-a718-57a438e2c8cf)$\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![3225d277](https://github.com/user-attachments/assets/96efe7ee-5080-4476-b2ad-6888cae249d6)
 
-![95 sin título](https://github.com/user-attachments/assets/d66c5a5d-f1da-4a22-ab51-78ef86df4432)
+![95 sin título](https://github.com/user-attachments/assets/33543c73-e734-484e-a7fb-59917a0f5afe)
 
 <p align="right">$\color{#a92f2f}{\textbf{"You can take me hot to go!"}}$
 
