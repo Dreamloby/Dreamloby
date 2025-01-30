@@ -35,9 +35,7 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 
 <p align="center">$\color{#a92f2f}{\textbf{Read rentry for more info!! :D}}$
 
-![c781eb03](https://github.com/user-attachments/assets/ecd47c76-f60b-4b8d-81e4-3937ecea1cea)![c781eb03](https://github.com/user-attachments/assets/d47c8a74-2f4e-411f-9a54-042a356dff43)
-
-
+  ![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)
 
 ![that feeling when execution is tomorrow](https://github.com/user-attachments/assets/64beef96-b96c-434d-abc5-ffcca9f5ab9c)
 ![She’s the true protagonist guys trust](https://github.com/user-attachments/assets/1969ac8e-564c-4e4d-be96-11e506e07c22)
