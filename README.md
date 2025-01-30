@@ -1,13 +1,15 @@
-![3f2b0473](https://github.com/user-attachments/assets/aa6e1969-eda2-401d-8d65-aa58de0a7561)![3f2b0473](https://github.com/user-attachments/assets/aa6e1969-eda2-401d-8d65-aa58de0a7561)![3f2b0473](https://github.com/user-attachments/assets/aa6e1969-eda2-401d-8d65-aa58de0a7561)![3f2b0473](https://github.com/user-attachments/assets/aa6e1969-eda2-401d-8d65-aa58de0a7561)
 
+![3f2b0473](https://github.com/user-attachments/assets/b7dacb1e-2c4d-4898-9f49-bd484009cc7c)![3f2b0473](https://github.com/user-attachments/assets/b7dacb1e-2c4d-4898-9f49-bd484009cc7c)![3f2b0473](https://github.com/user-attachments/assets/b7dacb1e-2c4d-4898-9f49-bd484009cc7c)![3f2b0473](https://github.com/user-attachments/assets/b7dacb1e-2c4d-4898-9f49-bd484009cc7c)
 
-![d275f877](https://github.com/user-attachments/assets/3f30175c-f4a1-4fc2-a718-57a438e2c8cf)$\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![3225d277](https://github.com/user-attachments/assets/96efe7ee-5080-4476-b2ad-6888cae249d6)
+![2b0e5e0b](https://github.com/user-attachments/assets/36c5db99-a610-4015-88be-0a332b0d70ff)
+$\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/user-attachments/assets/f4442cb4-460e-454b-938b-3bcb4573fa45)
 
 ![95 sin título](https://github.com/user-attachments/assets/33543c73-e734-484e-a7fb-59917a0f5afe)
 
 <p align="right">$\color{#a92f2f}{\textbf{"You can take me hot to go!"}}$
 
-![89892d90](https://github.com/user-attachments/assets/af4944da-d176-4b41-8959-5556731c8008)![89892d90](https://github.com/user-attachments/assets/af4944da-d176-4b41-8959-5556731c8008)
+  ![89892d90](https://github.com/user-attachments/assets/e887b790-f55e-4489-b7b5-a94a63c8a988)  ![89892d90](https://github.com/user-attachments/assets/e887b790-f55e-4489-b7b5-a94a63c8a988)
+
 
 <p align="center">$\color{#e64698}{\textbf{DESCRIPTION!:}}$
 
@@ -33,16 +35,23 @@
 
 <p align="center">$\color{#a92f2f}{\textbf{Read rentry for more info!! :D}}$
 
-![273b59f6](https://github.com/user-attachments/assets/d93ef6b6-fe24-4e53-94b1-39dff31d10c2)![273b59f6](https://github.com/user-attachments/assets/d93ef6b6-fe24-4e53-94b1-39dff31d10c2)
-
-![that feeling when execution is tomorrow](https://github.com/user-attachments/assets/604fe368-fa47-4765-a5ad-28d52a553a53)
-![Adios](https://github.com/user-attachments/assets/7681d28b-34c4-4ca7-802c-dd6cdc449d9a)
-![😎😎😎](https://github.com/user-attachments/assets/50043f28-703c-4c7f-a526-cc577c773b0e)
-![_ (5)](https://github.com/user-attachments/assets/716e2b32-66ef-4121-8c10-d7a2a64f4c39)
-![Danganronpa manga (junko)](https://github.com/user-attachments/assets/fe63a9eb-2f6c-4464-9d30-498c404d43a4)
-![uh oah](https://github.com/user-attachments/assets/271dcb48-6e02-4bfa-b9c9-4ebc47cc6ce4)
-![She’s the true protagonist guys trust](https://github.com/user-attachments/assets/fe762e75-e811-4a51-a676-a05fd1e3ec16)
-![PTSD](https://github.com/user-attachments/assets/9241e3c4-f295-4f0c-9372-e742d91f0b85)
+![273b59f6](https://github.com/user-attachments/assets/7a966876-6cfc-40b5-9d65-1d6f7a7b98a8)![273b59f6](https://github.com/user-attachments/assets/7a966876-6cfc-40b5-9d65-1d6f7a7b98a8)
 
 
-![40760b85_original](https://github.com/user-attachments/assets/a6493602-c544-4c40-b964-56fa4c1867bd)![40760b85_original](https://github.com/user-attachments/assets/a6493602-c544-4c40-b964-56fa4c1867bd)![40760b85_original](https://github.com/user-attachments/assets/a6493602-c544-4c40-b964-56fa4c1867bd)![40760b85_original](https://github.com/user-attachments/assets/a6493602-c544-4c40-b964-56fa4c1867bd)![40760b85_original](https://github.com/user-attachments/assets/a6493602-c544-4c40-b964-56fa4c1867bd)![40760b85_original](https://github.com/user-attachments/assets/a6493602-c544-4c40-b964-56fa4c1867bd)![40760b85_original](https://github.com/user-attachments/assets/a6493602-c544-4c40-b964-56fa4c1867bd)![40760b85_original](https://github.com/user-attachments/assets/a6493602-c544-4c40-b964-56fa4c1867bd)
+
+![that feeling when execution is tomorrow](https://github.com/user-attachments/assets/64beef96-b96c-434d-abc5-ffcca9f5ab9c)
+![She’s the true protagonist guys trust](https://github.com/user-attachments/assets/1969ac8e-564c-4e4d-be96-11e506e07c22)
+![Adios](https://github.com/user-attachments/assets/7a9f8e2e-c224-4df9-8987-65ebb3682ffb)
+![uh oah](https://github.com/user-attachments/assets/df5d53d2-351d-47a3-a55b-6ef39334b087)
+
+![40760b85_original](https://github.com/user-attachments/assets/1eb3a1d8-b3c6-407f-b6e0-ff9cee5c9491)![40760b85_original](https://github.com/user-attachments/assets/1eb3a1d8-b3c6-407f-b6e0-ff9cee5c9491)![40760b85_original](https://github.com/user-attachments/assets/1eb3a1d8-b3c6-407f-b6e0-ff9cee5c9491)![40760b85_original](https://github.com/user-attachments/assets/1eb3a1d8-b3c6-407f-b6e0-ff9cee5c9491)![40760b85_original](https://github.com/user-attachments/assets/1eb3a1d8-b3c6-407f-b6e0-ff9cee5c9491)![40760b85_original](https://github.com/user-attachments/assets/1eb3a1d8-b3c6-407f-b6e0-ff9cee5c9491)![40760b85_original](https://github.com/user-attachments/assets/1eb3a1d8-b3c6-407f-b6e0-ff9cee5c9491)![40760b85_original](https://github.com/user-attachments/assets/1eb3a1d8-b3c6-407f-b6e0-ff9cee5c9491)
+
+
+
+
+
+
+
+
+
+
