@@ -37,18 +37,15 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 <p align="center">$\color{#a92f2f}{\textbf{Read rentry for more info!! :D}}$
 
   ![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)
-
-![that feeling when execution is tomorrow](https://github.com/user-attachments/assets/64beef96-b96c-434d-abc5-ffcca9f5ab9c)
+  
+![tf are tozu’s students doing vro](https://github.com/user-attachments/assets/aeac1674-d361-47c0-af11-b3c0e3fa83d4)
 ![She’s the true protagonist guys trust](https://github.com/user-attachments/assets/1969ac8e-564c-4e4d-be96-11e506e07c22)
 ![Adios](https://github.com/user-attachments/assets/7a9f8e2e-c224-4df9-8987-65ebb3682ffb)
-![uh oah](https://github.com/user-attachments/assets/df5d53d2-351d-47a3-a55b-6ef39334b087)
+![hello vro 💜](https://github.com/user-attachments/assets/b4f49f45-2470-4d0b-a581-e9ad5082a1d5)
+
+
 
 ![3f2b0473](https://github.com/user-attachments/assets/b7dacb1e-2c4d-4898-9f49-bd484009cc7c)![3f2b0473](https://github.com/user-attachments/assets/b7dacb1e-2c4d-4898-9f49-bd484009cc7c)![3f2b0473](https://github.com/user-attachments/assets/b7dacb1e-2c4d-4898-9f49-bd484009cc7c)
-
-
-
-
-
 
 
 
