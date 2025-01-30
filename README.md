@@ -8,8 +8,7 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 
 <p align="right">$\color{#a92f2f}{\textbf{"You can take me hot to go!"}}$
 
-  ![89892d90](https://github.com/user-attachments/assets/e887b790-f55e-4489-b7b5-a94a63c8a988)  ![89892d90](https://github.com/user-attachments/assets/e887b790-f55e-4489-b7b5-a94a63c8a988)
-
+![6bb5e57b](https://github.com/user-attachments/assets/b8b48729-013f-4f9c-bb5b-5e85333b7623)![c781eb03](https://github.com/user-attachments/assets/dd516c95-35d2-42f5-8c65-4f10886feb7f)
 
 <p align="center">$\color{#e64698}{\textbf{DESCRIPTION!:}}$
 
