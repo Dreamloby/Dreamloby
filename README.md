@@ -35,9 +35,7 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 
 <p align="center">$\color{#a92f2f}{\textbf{Read rentry for more info!! :D}}$
 
-![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)
-
-
+![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)
 
 
 
