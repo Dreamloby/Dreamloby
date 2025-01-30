@@ -35,7 +35,9 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 
 <p align="center">$\color{#a92f2f}{\textbf{Read rentry for more info!! :D}}$
 
-![273b59f6](https://github.com/user-attachments/assets/7a966876-6cfc-40b5-9d65-1d6f7a7b98a8)![273b59f6](https://github.com/user-attachments/assets/7a966876-6cfc-40b5-9d65-1d6f7a7b98a8)
+![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)
+
+
 
 
 
