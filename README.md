@@ -8,7 +8,8 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 
 <p align="right">$\color{#a92f2f}{\textbf{"You can take me hot to go!"}}$
 
-![6bb5e57b](https://github.com/user-attachments/assets/b8b48729-013f-4f9c-bb5b-5e85333b7623)![c781eb03](https://github.com/user-attachments/assets/dd516c95-35d2-42f5-8c65-4f10886feb7f)
+![a296f2a4](https://github.com/user-attachments/assets/68b9f335-5d8a-4af2-98c0-924916bcafae)![a296f2a4](https://github.com/user-attachments/assets/68b9f335-5d8a-4af2-98c0-924916bcafae)
+
 
 <p align="center">$\color{#e64698}{\textbf{DESCRIPTION!:}}$
 
@@ -28,13 +29,13 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 
 <p align="center">$\color{#e64698}{\textbf{Sometimes with friends but feel free to interact with me!!}}$
 
-<p align="center">$\color{#a92f2f}{\textbf{I'm literally a Junko Enoshima irl but without beeing crazy and more shy}}$
+<p align="center">$\color{#a92f2f}{\textbf{I'm literally a Junko Enoshima irl (personality no aparence) but without beeing crazy and more shy }}$
 
 <p align="center">$\color{#e64698}{\textbf{W2I because i'm mostly offtab}}$
 
 <p align="center">$\color{#a92f2f}{\textbf{Read rentry for more info!! :D}}$
 
-![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)![f32fd0bb](https://github.com/user-attachments/assets/1f7e5842-ba36-4364-a7ed-f7a00e6afb26)
+![c781eb03](https://github.com/user-attachments/assets/ecd47c76-f60b-4b8d-81e4-3937ecea1cea)![c781eb03](https://github.com/user-attachments/assets/d47c8a74-2f4e-411f-9a54-042a356dff43)
 
 
 
