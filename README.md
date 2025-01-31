@@ -37,7 +37,12 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 <p align="center">$\color{#a92f2f}{\textbf{Read rentry for more info!! :D}}$
 
   ![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)
-  
+
+  ![ezgif-5-c806ea70e8](https://github.com/user-attachments/assets/53fca607-ff57-436b-a0b7-e6f7100e91d7)
+
+![751c0dea](https://github.com/user-attachments/assets/bcd5eec7-f4ac-47f9-99c0-583512f01eca)![751c0dea](https://github.com/user-attachments/assets/bcd5eec7-f4ac-47f9-99c0-583512f01eca)
+
+
 ![tf are tozu’s students doing vro](https://github.com/user-attachments/assets/aeac1674-d361-47c0-af11-b3c0e3fa83d4)
 ![She’s the true protagonist guys trust](https://github.com/user-attachments/assets/1969ac8e-564c-4e4d-be96-11e506e07c22)
 ![Adios](https://github.com/user-attachments/assets/7a9f8e2e-c224-4df9-8987-65ebb3682ffb)
