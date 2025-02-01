@@ -38,7 +38,7 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 
   ![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)
 
-  ![ezgif-5-c806ea70e8](https://github.com/user-attachments/assets/53fca607-ff57-436b-a0b7-e6f7100e91d7)
+![96 sin título](https://github.com/user-attachments/assets/5572d843-56e2-431f-bf69-ff40a2e3cb05)
 
 ![751c0dea](https://github.com/user-attachments/assets/bcd5eec7-f4ac-47f9-99c0-583512f01eca)![751c0dea](https://github.com/user-attachments/assets/bcd5eec7-f4ac-47f9-99c0-583512f01eca)
 
