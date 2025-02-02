@@ -12,29 +12,29 @@ $\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/use
 
 ![c781eb03](https://github.com/user-attachments/assets/fcda0f14-28c7-4de0-b73e-1d82c553283d)![c781eb03](https://github.com/user-attachments/assets/fcda0f14-28c7-4de0-b73e-1d82c553283d)
 
-<p align="center">$\color{#e64698}{\textbf{DESCRIPTION!:}}$
+<p align="center">$\color{#dd0a0a}{\textbf{DESCRIPTION!:}}$
 
-<p align="center">$\color{#a92f2f}{\textbf{Hallo! My name is Dreamly, Dreamloby or Alice :D}}$
+<p align="center">$\color{#d3590d}{\textbf{Hallo! My name is Dreamly, Dreamloby or Alice :D}}$
 
-<p align="center">$\color{#e64698}{\textbf{!MINIOR!}}$
+<p align="center">$\color{#cfc814}{\textbf{!MINIOR!}}$
   
-<p align="center">$\color{#a92f2f}{\textbf{My Main interests are FPE, CRK, Danganronpa/Fanganronpas, IDV and Persona}}$
+<p align="center">$\color{#56da0f}{\textbf{My Main interests are FPE, CRK, Danganronpa/Fanganronpas, IDV and Persona}}$
 
-<p align="center">$\color{#e64698}{\textbf{My fav characters are Junko Enoshima from Danganronpa and Eva Tsunaka from Project Edens Garden}}$
+<p align="center">$\color{#0fda4c}{\textbf{My fav characters are Junko Enoshima from Danganronpa and Eva Tsunaka from Project Edens Garden}}$
 
-<p align="center">$\color{#a92f2f}{\textbf{Im shy at first, but im nicer and more friendly afterwards}}$
+<p align="center">$\color{#0fdaca}{\textbf{Im shy at first, but im nicer and more friendly afterwards}}$
 
-<p align="center">$\color{#e64698}{\textbf{I like Drawing, Reading, Playing games and Sewing!}}$
+<p align="center">$\color{#2168e6}{\textbf{I like Drawing, Reading, Playing games and Sewing!}}$
 
-<p align="center">$\color{#a92f2f}{\textbf{I'm a bit weird, and sometimes i dont understand some jokes, please dont judge me because of that}}$
+<p align="center">$\color{#2132e6}{\textbf{I'm a bit weird, and sometimes i dont understand some jokes, please dont judge me because of that}}$
 
-<p align="center">$\color{#e64698}{\textbf{Sometimes with friends but feel free to interact with me!!}}$
+<p align="center">$\color{#9021e6}{\textbf{Sometimes with friends but feel free to interact with me!!}}$
 
-<p align="center">$\color{#a92f2f}{\textbf{I'm literally a Junko Enoshima irl (personality no aparence) but without beeing crazy and more shy }}$
+<p align="center">$\color{#bf21e6}{\textbf{I'm literally a Junko Enoshima irl (personality no aparence) but without beeing crazy and more shy }}$
 
-<p align="center">$\color{#e64698}{\textbf{W2I because i'm mostly offtab}}$
+<p align="center">$\color{#e621a0}{\textbf{W2I because i'm mostly offtab}}$
 
-<p align="center">$\color{#a92f2f}{\textbf{Read rentry for more info!! :D}}$
+<p align="center">$\color{#e6216a}{\textbf{Read rentry for more info!! :D}}$
 
   ![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)
 
