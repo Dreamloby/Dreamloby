@@ -8,8 +8,11 @@ $\color{#e64698}{\textbf{"We can be either loved by nobody or loved enough!"}}$!
 
 ![95 sin título](https://github.com/user-attachments/assets/33543c73-e734-484e-a7fb-59917a0f5afe)
 
-<p align="right">$\color{#a92f2f}{\textbf{"We can be laughing or hearing nothing of!"}}$
-<p align="right">$\color{#a92f2f}{\textbf{Song: Pogo-Living Island}}$
+![8b733d63](https://github.com/user-attachments/assets/574e1cb0-b73c-4787-b8c8-e38bd55ac515)![936f6e41](https://github.com/user-attachments/assets/ea76439b-3921-47fb-9eb2-49d595c3c613) $\color{#a92f2f}{\textbf{"We can be laughing or hearing nothing of!"}}$![697008b1](https://github.com/user-attachments/assets/3df8d277-e004-42cf-ba6d-6269f7c6a724)![22595f9e](https://github.com/user-attachments/assets/7e5e918c-8345-44fa-95e7-d8491662a914)
+
+![d275f877](https://github.com/user-attachments/assets/823d3429-8129-4d0a-89a7-757b201ca80a)![7cbf1d6c](https://github.com/user-attachments/assets/56a63a64-13f9-4d77-a585-57b8474b64ec)$\color{#a92f2f}{\textbf{Song: Pogo-Living Island}}$![9bdf99f4](https://github.com/user-attachments/assets/9c7b32eb-df2d-43aa-b237-50caca81393a)![a5113c15](https://github.com/user-attachments/assets/64817965-df11-4eaf-9ffb-44c12b1de905)
+
+
   
 ![c781eb03](https://github.com/user-attachments/assets/fcda0f14-28c7-4de0-b73e-1d82c553283d)![c781eb03](https://github.com/user-attachments/assets/fcda0f14-28c7-4de0-b73e-1d82c553283d)
 
