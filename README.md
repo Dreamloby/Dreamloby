@@ -10,6 +10,7 @@ $\color{#e64698}{\textbf{"We can be either loved by nobody or loved enough!"}}$!
 
 <p align="right">$\color{#a92f2f}{\textbf{"We can be laughing or hearing nothing of!"}}$
 <p align="right">$\color{#a92f2f}{\textbf{Song: Pogo-Living Island}}$
+  
 ![c781eb03](https://github.com/user-attachments/assets/fcda0f14-28c7-4de0-b73e-1d82c553283d)![c781eb03](https://github.com/user-attachments/assets/fcda0f14-28c7-4de0-b73e-1d82c553283d)
 
 <p align="center">$\color{#dd0a0a}{\textbf{DESCRIPTION!:}}$
