@@ -3,13 +3,13 @@
 ![a296f2a4](https://github.com/user-attachments/assets/68b9f335-5d8a-4af2-98c0-924916bcafae)![a296f2a4](https://github.com/user-attachments/assets/68b9f335-5d8a-4af2-98c0-924916bcafae)
 
 ![3225d277](https://github.com/user-attachments/assets/7e8846b5-1faa-4577-8061-985b099e7755)![2b0e5e0b](https://github.com/user-attachments/assets/36c5db99-a610-4015-88be-0a332b0d70ff)
-$\color{#e64698}{\textbf{"H-O-T  T-O  G-O!"}}$![a7643460](https://github.com/user-attachments/assets/f4442cb4-460e-454b-938b-3bcb4573fa45)![8c98acaf](https://github.com/user-attachments/assets/549f8461-4b28-4503-a5e0-80e666c1b634)
+$\color{#e64698}{\textbf{"We can be either loved by nobody or loved enough!"}}$![a7643460](https://github.com/user-attachments/assets/f4442cb4-460e-454b-938b-3bcb4573fa45)![8c98acaf](https://github.com/user-attachments/assets/549f8461-4b28-4503-a5e0-80e666c1b634)
 
 
 ![95 sin título](https://github.com/user-attachments/assets/33543c73-e734-484e-a7fb-59917a0f5afe)
 
-<p align="right">$\color{#a92f2f}{\textbf{"You can take me hot to go!"}}$
-
+<p align="right">$\color{#a92f2f}{\textbf{"We can be laughing or hearing nothing of!"}}$
+<p align="right">$\color{#a92f2f}{\textbf{Song: Pogo-Living Island}}$
 ![c781eb03](https://github.com/user-attachments/assets/fcda0f14-28c7-4de0-b73e-1d82c553283d)![c781eb03](https://github.com/user-attachments/assets/fcda0f14-28c7-4de0-b73e-1d82c553283d)
 
 <p align="center">$\color{#dd0a0a}{\textbf{DESCRIPTION!:}}$
