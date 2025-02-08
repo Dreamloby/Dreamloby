@@ -46,11 +46,12 @@ $\color{#e64698}{\textbf{"We can be either loved by nobody or loved enough!"}}$!
 
 ![751c0dea](https://github.com/user-attachments/assets/bcd5eec7-f4ac-47f9-99c0-583512f01eca)![751c0dea](https://github.com/user-attachments/assets/bcd5eec7-f4ac-47f9-99c0-583512f01eca)
 
-
+![Izenik gabeko diseinua](https://github.com/user-attachments/assets/22ace4c1-4f0f-4c93-8c99-34e3476368d9)
 ![tf are tozu’s students doing vro](https://github.com/user-attachments/assets/aeac1674-d361-47c0-af11-b3c0e3fa83d4)
 ![She’s the true protagonist guys trust](https://github.com/user-attachments/assets/1969ac8e-564c-4e4d-be96-11e506e07c22)
 ![Adios](https://github.com/user-attachments/assets/7a9f8e2e-c224-4df9-8987-65ebb3682ffb)
 ![hello vro 💜](https://github.com/user-attachments/assets/b4f49f45-2470-4d0b-a581-e9ad5082a1d5)
+
 
 
 
