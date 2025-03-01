@@ -42,7 +42,7 @@ $\color{#e64698}{\textbf{"We can be either loved by nobody or loved enough!"}}$!
 
   ![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)![6bb5e57b](https://github.com/user-attachments/assets/a811b3b8-153d-41cb-83d3-299f3fcba2c4)
 
-![96 sin título](https://github.com/user-attachments/assets/5572d843-56e2-431f-bf69-ff40a2e3cb05)
+![103 sin título](https://github.com/user-attachments/assets/ad323a24-9e21-453c-af7f-cc84eae1fd2a)
 
 ![751c0dea](https://github.com/user-attachments/assets/bcd5eec7-f4ac-47f9-99c0-583512f01eca)![751c0dea](https://github.com/user-attachments/assets/bcd5eec7-f4ac-47f9-99c0-583512f01eca)
 
