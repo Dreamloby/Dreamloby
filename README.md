@@ -16,7 +16,7 @@ $\color{#d47ead}{\textbf{"Hold on you'r buts people, because Junko Enoshima is r
 </p>
 
 <p align="center">
-$\color{#d5cddca}{\textbf{"Name is Dreamly, Dreamloby or Alice"}}$
+$\color{#d5cddc}{\textbf{"Name is Dreamly, Dreamloby or Alice"}}$
 </p>
 <p align="center">
 $\color{#f40f0f}{\textbf{"IF YOU SEE ME IN GENSHIN AREA DONT JUDGE MY KNOWLEDGE I JUST STARTED THE GAME"}}$
