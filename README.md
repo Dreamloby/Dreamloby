@@ -25,8 +25,10 @@ $\color{#f40f0f}{\textbf{"IF YOU SEE ME IN GENSHIN AREA DONT JUDGE MY KNOWLEDGE 
 $\color{#1bff00}{\textbf{"Junko irl but not crazy and more shy (my kins apear in my rentry, that i also gotta rmk...)"}}$
 </p>
 <p align="center">
+$\color{#9bc5cc}{\textbf{"ALSO POKEMON SCARLET-VIOLET AND NEEDY GIRL OVERDOASE BRAINROT RN SO FEEL FREE TO TALK W ME ABOUT IT!!!! :D"}}$
+</p>
+<p align="center">
 $\color{#c300ff}{\textbf{"READ RENTRY FOR MORE INFO"}}$
 </p>
-
 
 
