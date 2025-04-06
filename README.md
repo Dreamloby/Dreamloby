@@ -32,7 +32,7 @@ $\color{#c300ff}{\textbf{"READ RENTRY FOR MORE INFO"}}$
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/dca87bbd-45cd-41cb-858e-50236b1d6dfd"width="500">
+  <img src="https://github.com/user-attachments/assets/f2916a0a-dc9d-4788-8933-91118441c1b5"width="400">
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/e0a907af-5a4b-46f7-9eed-ecf4607bfb91"width="276">
@@ -41,5 +41,6 @@ $\color{#c300ff}{\textbf{"READ RENTRY FOR MORE INFO"}}$
 $\color{#d68623}{\textbf{"Hear the echo's of the valley!"}}$
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/0fe033d9-1012-4881-96c4-d54b22ccddbe"width="500">
+  <img src="https://github.com/user-attachments/assets/f2916a0a-dc9d-4788-8933-91118441c1b5"width="400">
 </p>
+
