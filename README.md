@@ -31,4 +31,15 @@ $\color{#9bc5cc}{\textbf{"ALSO POKEMON SCARLET-VIOLET AND NEEDY GIRL OVERDOASE B
 $\color{#c300ff}{\textbf{"READ RENTRY FOR MORE INFO"}}$
 </p>
 
-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/8d37b6a7-d491-4b6b-81b0-7ac1de53012d"width="600">
+</p>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/e0a907af-5a4b-46f7-9eed-ecf4607bfb91"width="276">
+</p>
+<p align="center">
+$\color{#d68623}{\textbf{"Hear the echo's of the valley!"}}$
+</p>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/8d37b6a7-d491-4b6b-81b0-7ac1de53012d"width="600">
+</p>
