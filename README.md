@@ -35,7 +35,7 @@ $\color{#c300ff}{\textbf{"READ RENTRY FOR MORE INFO"}}$
   <img src="https://github.com/user-attachments/assets/f2916a0a-dc9d-4788-8933-91118441c1b5"width="400">
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/e0a907af-5a4b-46f7-9eed-ecf4607bfb91"width="276">
+  <img src="https://github.com/user-attachments/assets/9c3c9415-62a6-47fe-919f-e43af24e8561"width="498">
 </p>
 <p align="center">
 $\color{#d68623}{\textbf{"Hear the echo's of the valley!"}}$
@@ -43,4 +43,5 @@ $\color{#d68623}{\textbf{"Hear the echo's of the valley!"}}$
 <p align="center">
   <img src="https://github.com/user-attachments/assets/f2916a0a-dc9d-4788-8933-91118441c1b5"width="400">
 </p>
+
 
