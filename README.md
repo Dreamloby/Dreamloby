@@ -20,7 +20,10 @@ $\color{#603030}{\textbf{"I use They/Them pronouns, but don't mind female ones"}
 $\color{#b60f0f}{\textbf{"I saw part of genshins lore long time ago but dont remember, i finally started the game one week ago"}}$
 </p>
 <p align="center">
-$\color{#603030}{\textbf{"Go check out rentry for more info!"}}$
+$\color{#603030}{\textbf{"Junko Enoshima IRL but not crazy and more shy"}}$
+</p>
+<p align="center">
+$\color{#b60f0f}{\textbf{"Go check out rentry for more info!"}}$
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/f05bbf79-ed4b-4d81-aa67-89e412fa2e1f"width="1280">
@@ -52,8 +55,12 @@ $\color{#d4aa0a}{\textbf{"I use They/Them pronouns, but don't mind female ones"}
 $\color{#ff7200}{\textbf{"I saw part of genshins lore long time ago but dont remember, i finally started the game one week ago"}}$
 </p>
 <p align="center">
-$\color{#d4aa0a}{\textbf{"Go check out rentry for more info!"}}$
+$\color{#d4aa0a}{\textbf{"Junko Enoshima IRL, but not crazy and more shy"}}$
 </p>
+<p align="center">
+$\color{#ff7200}{\textbf{"Go check out rentry for more info!"}}$
+</p>
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ce709118-95d3-43d1-b0af-af2c207572e2"width="1219">
 </p>
