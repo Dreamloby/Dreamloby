@@ -32,7 +32,7 @@ $\color{#b60f0f}{\textbf{"but is more because they are normaly with their friend
 $\color{#b60f0f}{\textbf{"This is why im normaly alone. If im ur friend and your w other friends is very probable that i wont go were you are to dont bother you"}}$
 </p>
 <p align="center">
-$\color{#b60f0f}{\textbf{"I aso have lost friendships because of this so, if this happens/happened to you, im sorry."}}$
+$\color{#b60f0f}{\textbf{"I aso have lost friendships because of this so, if this happens/happened to you, im very sorry."}}$
 </p>
 <p align="center">
 $\color{#603030}{\textbf{"Go check out rentry for more info!"}}$
