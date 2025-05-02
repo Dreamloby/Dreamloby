@@ -23,7 +23,10 @@ $\color{#b60f0f}{\textbf{"I saw part of genshins lore long time ago but dont rem
 $\color{#603030}{\textbf{"Junko Enoshima IRL but not crazy and more shy"}}$
 </p>
 <p align="center">
-$\color{#b60f0f}{\textbf{"Go check out rentry for more info!"}}$
+$\color{#b60f0f}{\textbf{"Important thing if im your friend: I somethimes tend to distance from people i know, i dont this on propouse, but is more because they are normaly with their friends, and dont want to bother them. This is why im normaly alone. If im ur friend and you'r with other friends is very probable that i wont go were you are to dont bother you and your friends. I aso have lost friendships because of this so, if this happens/happened to you, im sorry."}}$
+</p>
+<p align="center">
+$\color{#603030}{\textbf{"Go check out rentry for more info!"}}$
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/f05bbf79-ed4b-4d81-aa67-89e412fa2e1f"width="1280">
