@@ -24,9 +24,14 @@ $\color{#603030}{\textbf{"Junko Enoshima IRL but not crazy and more shy"}}$
 </p>
 <p align="center">
 $\color{#b60f0f}{\textbf{"Important thing if im your friend: I somethimes tend to distance from people i know, i dont this on propouse, 
-but is more because they are normaly with their friends, and dont want to bother them.
-This is why im normaly alone. If im ur friend and you'r with other friends is very probable that i wont go were you are to dont bother you and your friends.
-I aso have lost friendships because of this so, if this happens/happened to you, im sorry."}}$
+<p align="center">
+$\color{#b60f0f}{\textbf{"but is more because they are normaly with their friends, and dont want to bother them."}}$
+</p>
+<p align="center">
+$\color{#b60f0f}{\textbf{"This is why im normaly alone. If im ur friend & your w other friends is very probable that i wont go were you are to dont bother you"}}$
+</p>
+<p align="center">
+$\color{#b60f0f}{\textbf{"I aso have lost friendships because of this so, if this happens/happened to you, im sorry."}}$
 </p>
 <p align="center">
 $\color{#603030}{\textbf{"Go check out rentry for more info!"}}$
