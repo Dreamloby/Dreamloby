@@ -8,14 +8,14 @@
   <img src="https://github.com/user-attachments/assets/75054d9d-18a1-4ae8-bbe6-33c7edfc5038"width="1280">
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/ae91e1f8-d0be-46d5-b3f8-ba6d61f97798"width="878">
-  
+  <img src="https://github.com/user-attachments/assets/ae91e1f8-d0be-46d5-b3f8-ba6d61f97798"width="700">
+  <p align="center"> $\color{#7d162d}{\textbf{drawing by Alkhoooo in pinterest}}$
+
    [Ata🎀](https://endlesstragedy.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎭](https://endlesstragedy.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🗒](https://en.pronouns.page/@Dreamloby)
 <p align="center">
   <img src="https://github.com/user-attachments/assets/7702a7ae-bdd5-4358-947e-4d48599c53b3"width="1280">
 </p>
 ‎
-drawing by Alkhoooo in pinterest 
 
 ‎
 
