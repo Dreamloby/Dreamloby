@@ -10,6 +10,10 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/1e806f30-94e2-45ad-8bfa-baf975b7f1f0"width="800">
   <p align="center"> $\color{#7d162d}{\textbf{"graphic found in tumblr, credits to its creator"}}$
+    
+  <p align="center">
+  <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
+</p>
 
    [Ata🎀](https://endlesstragedy.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎭](https://endlesstragedy.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🗒](https://pronouns.cc/@Endless_Tragedy)
 <p align="center">
