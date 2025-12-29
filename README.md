@@ -15,7 +15,8 @@
   <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
 </p>
 
-   [Ata🎀](https://endlesstragedy.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎭](https://ultimate-student.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🗒](https://pronouns.cc/@Endless_Tragedy)
+   [Ata🎀](https://endlesstragedy.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎭](https://endlesstragedy.straw.page/) ‎  ‎  ‎  ‎[Straw 2❄](https://ultimate-student.straw.page/)‎ ‎  ‎  ‎  ‎ 
+   [Pronouns🗒](https://pronouns.cc/@Endless_Tragedy)
 <p align="center">
   <img src="https://github.com/user-attachments/assets/7702a7ae-bdd5-4358-947e-4d48599c53b3"width="1280">
 </p>
