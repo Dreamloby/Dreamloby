@@ -5,7 +5,7 @@
 ![914c5492](https://github.com/user-attachments/assets/517c4812-c9f4-4122-8abb-df473b89dff3)   ![](https://komarev.com/ghpvc/?username=Dreamloby&color=ad2838&label=Really+cool+people+:D)   ![828df923](https://github.com/user-attachments/assets/f7862cfd-183d-4a54-bf75-1b851d1b5c8f)
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/a51072ad-53ec-443f-80b6-b5a77d36d176"width="1280">
+  <img src="https://github.com/user-attachments/assets/191f04cb-f2c2-469b-8437-8776ff81b843"width="1280">
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/81559121-a3e4-4b36-93db-2539bb101c69"width="500">
@@ -18,7 +18,7 @@
    [Ata🎀](https://endlesstragedy.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎭](https://endlesstragedy.straw.page/) ‎  ‎  ‎  ‎[Straw 2❄](https://ultimate-student.straw.page/)‎ ‎  ‎  ‎  ‎ 
    [Pronouns🗒](https://pronouns.cc/@Endless_Tragedy)
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/a51072ad-53ec-443f-80b6-b5a77d36d176"width="1280">
+  <img src="https://github.com/user-attachments/assets/62aa4fed-d7a3-48c2-a751-34d5942d67f5"width="1280">
 </p>
 ‎
 ‎<p align="center">
