@@ -9,7 +9,7 @@
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/88cebf4e-779e-482b-a89e-479a7515d635"width="700">
-  <p align="center"> $\color{#7d162d}{\textbf{"Umm splatoon graphic cuz there are almost no gangle graphics (Graphic found in tumbl)"}}$
+  <p align="center"> $\color{#7d162d}{\textbf{"Umm splatoon graphic cuz there are almost no gangle graphics (Graphic by @skeletonenthusiasts in tumblr)"}}$
     
   <p align="center">
   <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
