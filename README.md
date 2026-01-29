@@ -8,8 +8,8 @@
   <img src="https://github.com/user-attachments/assets/191f04cb-f2c2-469b-8437-8776ff81b843"width="1280">
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/81559121-a3e4-4b36-93db-2539bb101c69"width="500">
-  <p align="center"> $\color{#7d162d}{\textbf{"Enjoy this gangle gif while i think how to rmk mi github"}}$
+  <img src="https://github.com/user-attachments/assets/88cebf4e-779e-482b-a89e-479a7515d635"width="700">
+  <p align="center"> $\color{#7d162d}{\textbf{"Umm splatoon graphic cuz there are almost no gangle graphics"}}$
     
   <p align="center">
   <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
