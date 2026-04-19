@@ -22,8 +22,8 @@
 </p>
 ‎
 ‎<p align="center">
-  <img src="https://github.com/user-attachments/assets/f5005a55-88da-41c5-872b-78bf6ea1b3fa"width="500">
+  <img src="https://github.com/user-attachments/assets/cb31e8be-500d-4cdc-b6e6-78382003722c"width="500">
 </p>
-  <p align="center"> $\color{#7d162d}{\textbf{"This 4 are my fav characters btw :)"}}$
+  <p align="center"> $\color{#7d162d}{\textbf{"This are my biggest comf characters btw :) "}}$
 
 
