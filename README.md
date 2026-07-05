@@ -15,16 +15,12 @@
   <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
 </p>
 
-   [Ata🎀](https://keeperofthetimeline.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎭](https://endlesstragedy.straw.page/) ‎  ‎  ‎  ‎[Straw 2❄](https://time-breaker.straw.page/)‎ ‎  ‎  ‎  ‎ 
-   [Pronouns🗒](https://pronouns.cc/@Endless_Tragedy)
+   [Ata🐇](https://keeperofthetimeline.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🛼](https://endlesstragedy.straw.page/) ‎  ‎  ‎  ‎[Straw 2🕑](https://time-breaker.straw.page/)‎ ‎  ‎  ‎  ‎ 
+   [Pronouns🌂](https://pronouns.cc/@Endless_Tragedy)
 <p align="center">
   <img src="https://github.com/user-attachments/assets/bc3df387-8eba-43c0-be25-3efd53963b42"width="1000">
 </p>
 ‎
-‎<p align="center">
-  <img src="https://github.com/user-attachments/assets/cb31e8be-500d-4cdc-b6e6-78382003722c"width="500">
-</p>
-  <p align="center"> $\color{#7d162d}{\textbf{"This are my biggest comf characters btw :) "}}$
 
 
 
