@@ -18,12 +18,14 @@
    [Ata🎀](https://keeperofthetimeline.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎭](https://endlesstragedy.straw.page/) ‎  ‎  ‎  ‎[Straw 2❄](https://time-breaker.straw.page/)‎ ‎  ‎  ‎  ‎ 
    [Pronouns🗒](https://pronouns.cc/@Endless_Tragedy)
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/62aa4fed-d7a3-48c2-a751-34d5942d67f5"width="1280">
+  <img src="https://github.com/user-attachments/assets/bc3df387-8eba-43c0-be25-3efd53963b42"width="1000">
 </p>
 ‎
 ‎<p align="center">
   <img src="https://github.com/user-attachments/assets/cb31e8be-500d-4cdc-b6e6-78382003722c"width="500">
 </p>
   <p align="center"> $\color{#7d162d}{\textbf{"This are my biggest comf characters btw :) "}}$
+
+
 
 
