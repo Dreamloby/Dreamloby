@@ -10,7 +10,7 @@
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/19858336-2702-45e7-8f20-ced21fda77ff"width="900">
-  <p align="center"> $\color{#12bde2}{\textbf{Graphics made by me (its my first time ever making a graphic hope it turned out enough good)}}$
+  <p align="center"> $\color{#12bde2}{\textbf{Graphics made by me (its my first time ever making a graphic hope they turned out enough good)}}$
   <p align="center"> $\color{#12bde2}{\textbf{Alix Kubdel/Bunnyx the goat}}$
     
   <p align="center">
