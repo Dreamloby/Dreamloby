@@ -5,7 +5,7 @@
 ![914c5492](https://github.com/user-attachments/assets/517c4812-c9f4-4122-8abb-df473b89dff3)   ![](https://komarev.com/ghpvc/?username=Dreamloby&color=ad2838&label=Really+cool+people+:D)   ![828df923](https://github.com/user-attachments/assets/f7862cfd-183d-4a54-bf75-1b851d1b5c8f)
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/191f04cb-f2c2-469b-8437-8776ff81b843"width="1280">
+  <img src="https://github.com/user-attachments/assets/f28a2166-a0ff-4c92-948b-27f625db3c33"width="1000">
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/01f93e57-f616-425a-9de4-00815bcdec1b"width="700">
