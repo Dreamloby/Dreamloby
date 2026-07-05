@@ -2,7 +2,7 @@
 
 <div align="center">
   
-![914c5492](https://github.com/user-attachments/assets/517c4812-c9f4-4122-8abb-df473b89dff3)   ![](https://komarev.com/ghpvc/?username=Dreamloby&color=14b72b&label=Awsome+people+>:D)   ![828df923](https://github.com/user-attachments/assets/f7862cfd-183d-4a54-bf75-1b851d1b5c8f)
+![914c5492](https://github.com/user-attachments/assets/40b49575-fe09-447e-96b7-cb0b6dab96f2)   ![](https://komarev.com/ghpvc/?username=Dreamloby&color=14b72b&label=Awsome+people+>:D)   ![828df923](https://github.com/user-attachments/assets/f124daa8-4cf5-45a8-abec-c74aaa2e2941)
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/f28a2166-a0ff-4c92-948b-27f625db3c33"width="1000">
