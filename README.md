@@ -19,7 +19,7 @@
 </p>
 
    [Ata🐇](https://keeperofthetimeline.atabook.org/)‎ ‎  ‎  ‎  ‎ [New main straw🛼](https://time-breaker.straw.page/) ‎  ‎  ‎  ‎[Old main straw🕑](https://endlesstragedy.straw.page/)‎ ‎  ‎  ‎  ‎ 
-   [Pronouns page🌂](https://pronouns.cc/@Endless_Tragedy)
+   [Pronouns page🌂](https://pronouns.cc/@Time_Breaker)
 
    <img width="120" height="73" alt="Alix stamp 1 (1)" src="https://github.com/user-attachments/assets/b1ad3544-e2fb-4629-bdc3-8e45d6b3681b" /><img width="120" height="73" alt="tumblr_2b0616c54aac77e596a29a32198fd68c_82d7c1a4_250 (3)" src="https://github.com/user-attachments/assets/126d6b6b-41e7-4659-baa8-ee23725621b9" /><img width="120" height="73" alt="tumblr_2b0616c54aac77e596a29a32198fd68c_82d7c1a4_250 (5)" src="https://github.com/user-attachments/assets/63df9422-3487-4f6d-ba30-e3c400855cb5" /><img width="120" height="73" alt="tumblr_2b0616c54aac77e596a29a32198fd68c_82d7c1a4_250 (8)" src="https://github.com/user-attachments/assets/6272de6c-9d74-4310-aafd-a99a986943d0" /><img width="120" height="73" alt="tumblr_2b0616c54aac77e596a29a32198fd68c_82d7c1a4_250 (6)" src="https://github.com/user-attachments/assets/2ba64426-6ef2-4625-9c82-53a22853ee45" /><img width="120" height="73" alt="tumblr_2b0616c54aac77e596a29a32198fd68c_82d7c1a4_250 (4)" src="https://github.com/user-attachments/assets/36a7be51-c824-4f6f-89cd-2caa4bd22f41" />
 
