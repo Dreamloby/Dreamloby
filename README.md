@@ -6,8 +6,14 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/f28a2166-a0ff-4c92-948b-27f625db3c33"width="1000">
 </p>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=georgia&weight=100&duration=4000&pause=1000&color=1FC4C5&width=435&lines=++++++++++++Fluff%2C+clockwise!)](https://git.io/typing-svg)
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/19858336-2702-45e7-8f20-ced21fda77ff"width="900">
+  
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=georgia&weight=100&duration=4000&pause=1000&color=8BC519&width=435&lines=Let+me+guess%2C+another+collage+of+selfies%3F)](https://git.io/typing-svg)
+
   <p align="center"> $\color{#12bde2}{\textbf{Graphics made by me (its my first time ever making a graphic hope they turned out enough good)}}$
   <p align="center"> $\color{#12bde2}{\textbf{Alix Kubdel the goat}}$
 
